@@ -2,4 +2,4 @@
 
 #### If you were chosen to be Mayor of hargeisa what would you change? 👀
 
-#### Answer:
+#### Answer: I would deal with corruption and mismanagement. That alone, if managed well, would change a lot in the city.
