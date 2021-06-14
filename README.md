@@ -2,4 +2,7 @@
 
 #### If you were chosen to be Mayor of hargeisa what would you change? 👀
 
-#### Answer:
+#### Answer: 
+To  oversee a city's main departments, including the police, fire, education, housing and transportation departments.
+
+
