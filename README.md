@@ -2,4 +2,4 @@
 
 #### If you were chosen to be Mayor of hargeisa what would you change? 👀
 
-#### Answer:
+#### Answer: waxaan sameen lahaa Hargeisa Bilaa boodh iyo ciid ah, lehna wadooyin iyo biriishyo fiican. 
